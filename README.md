@@ -19,7 +19,7 @@
 
 - 👨‍💻 All of my projects are available at **tyler.com**
 
-- ⚡ Fun fact [I did gymnastics & cheerleading in high school.](I did gymnastics & cheerleading in high school.)
+- ⚡ Fun fact [I did gymnastics & cheerleading in high school.]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
